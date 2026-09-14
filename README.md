@@ -1,1 +1,7 @@
 This repo is just to keep up with the daily commits 
+
+14 sep 2026
+Today i just came uni alone
+i dont want to sit with anyone right now 
+i will read the book, eat and just do nothing.
+just wanted to escape the home and i did :)
