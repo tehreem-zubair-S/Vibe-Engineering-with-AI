@@ -11,3 +11,7 @@ Today was my information security's exam.
 It went really good.
 afterwards me sania muskan and rohail went for lunch at OD. 
 it was really fun, we gossiped, played cards, enjoyed food and music hehe <3
+
+18 sep 2026
+Im registering for ITCIAN 2026 hehe 
+and i might also apply for multi cloud data engineering at Saylani
