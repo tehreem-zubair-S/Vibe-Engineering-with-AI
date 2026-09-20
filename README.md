@@ -18,3 +18,13 @@ and i might also apply for multi cloud data engineering at Saylani
 
 19th sept 2026
 life sucks man
+
+21 sept 2026
+semester break guys, god knows how im gonna survive this break at home :)
+i know how its gonna be and thats why it sucks coz i cant change it, i just know i cant, 
+agar meri aaj job hoti, ya i had my own money kasam se escape krna kitna easy hojata :)
+i dont have a single rupee of myself, and it really suck, 
+i cant asking money from mama coz she makes it feel like begging her.
+i wish papa hotay yr yahn, it would have been so good to have him constantly, 
+kitna khayal krte hain wo as a father but she :)
+
