@@ -28,3 +28,5 @@ i cant asking money from mama coz she makes it feel like begging her.
 i wish papa hotay yr yahn, it would have been so good to have him constantly, 
 kitna khayal krte hain wo as a father but she :)
 
+22 sept 2026
+i watched girl crew hehe 
