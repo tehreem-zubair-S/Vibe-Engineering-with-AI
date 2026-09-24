@@ -34,3 +34,6 @@ nothing man :'
 
 24 sept 2026
 ITCN Asia last day hehe, enjoyed, met alot of new tech ppl, even the person who hacked the Indian broad cast channel and played Pakistani national anthem lol, it was great meeting him 
+
+25 sept 2026
+phir se ghar pr phas gyi hun yr :))
