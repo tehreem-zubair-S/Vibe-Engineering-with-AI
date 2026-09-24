@@ -31,3 +31,6 @@ kitna khayal krte hain wo as a father but she :)
 22 sept 2026
 i watched girl crew hehe 
 nothing man :'
+
+24 sept 2026
+ITCN Asia last day hehe, enjoyed, met alot of new tech ppl, even the person who hacked the Indian broad cast channel and played Pakistani national anthem lol, it was great meeting him 
