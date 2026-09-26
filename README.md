@@ -37,3 +37,9 @@ ITCN Asia last day hehe, enjoyed, met alot of new tech ppl, even the person who 
 
 25 sept 2026
 phir se ghar pr phas gyi hun yr :))
+
+26th sept 2026
+its weird 
+i know im doing so much wrong but im not acknowledging it
+i feel like jo meri 2 tutions chali gyi hai and have no money onwards its because i wasnt thanking Allah and im not praying :)
+i want to do better but...
