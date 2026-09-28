@@ -46,3 +46,5 @@ i want to do better but...
 
 28th sept 2026
 guys we are going islamabad i guess :)
+basically wah cantt to moona khala's for the first time.
+
