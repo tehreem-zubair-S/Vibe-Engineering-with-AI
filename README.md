@@ -43,3 +43,6 @@ its weird
 i know im doing so much wrong but im not acknowledging it
 i feel like jo meri 2 tutions chali gyi hai and have no money onwards its because i wasnt thanking Allah and im not praying :)
 i want to do better but...
+
+28th sept 2026
+guys we are going islamabad i guess :)
