@@ -48,3 +48,6 @@ i want to do better but...
 guys we are going islamabad i guess :)
 basically wah cantt to moona khala's for the first time.
 
+30th sept 2026
+bhae saab we are going to ISLAMABAD 9 baje ki flight se :)
+
