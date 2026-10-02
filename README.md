@@ -51,3 +51,7 @@ basically wah cantt to moona khala's for the first time.
 30th sept 2026
 bhae saab we are going to ISLAMABAD 9 baje ki flight se :)
 
+02 oct 2026
+its our rd day at wah cantt hehe :) 
+we had so much fun here yesterday at mohammadani nani's house, they are so good yaar, mani mamu mashallah 
+i ejnoyed alot :)
