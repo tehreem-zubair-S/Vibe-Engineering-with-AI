@@ -55,3 +55,10 @@ bhae saab we are going to ISLAMABAD 9 baje ki flight se :)
 its our rd day at wah cantt hehe :) 
 we had so much fun here yesterday at mohammadani nani's house, they are so good yaar, mani mamu mashallah 
 i ejnoyed alot :)
+
+03 oct 2026
+man i love moona khala's place 
+people here are so genuine and caring, they know how to treat their guests 
+lovely people lovely place ufff
+i also rode first time bike it was great hehe
+shareef khalu mashallah i feels like papa <3
