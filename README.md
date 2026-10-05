@@ -62,3 +62,6 @@ people here are so genuine and caring, they know how to treat their guests
 lovely people lovely place ufff
 i also rode first time bike it was great hehe
 shareef khalu mashallah i feels like papa <3
+
+06 october 2026
+im enjoying alot
