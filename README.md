@@ -77,3 +77,6 @@ just a random day
 
 23 oct 2026
 again just a random day
+
+25 oct 2026
+its sunday, trying to learn somethingg
