@@ -83,3 +83,6 @@ its sunday, trying to learn somethingg
 
 26 oct 2026
 i need alot of money
+
+28 oct 2026 
+i swimmed today, so much fun and relaxing, also i tried little diving as well
