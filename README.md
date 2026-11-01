@@ -33,7 +33,9 @@ i watched girl crew hehe
 nothing man :'
 
 24 sept 2026
-ITCN Asia last day hehe, enjoyed, met alot of new tech ppl, even the person who hacked the Indian broad cast channel and played Pakistani national anthem lol, it was great meeting him 
+ITCN Asia last day hehe, enjoyed, met alot of new tech ppl, 
+even the person who hacked the Indian broad cast channel and 
+played Pakistani national anthem lol, it was great meeting him 
 
 25 sept 2026
 phir se ghar pr phas gyi hun yr :))
@@ -41,7 +43,8 @@ phir se ghar pr phas gyi hun yr :))
 26th sept 2026
 its weird 
 i know im doing so much wrong but im not acknowledging it
-i feel like jo meri 2 tutions chali gyi hai and have no money onwards its because i wasnt thanking Allah and im not praying :)
+i feel like jo meri 2 tutions chali gyi hai and have no money onwards 
+its because i wasnt thanking Allah and im not praying :)
 i want to do better but...
 
 28th sept 2026
@@ -53,8 +56,9 @@ bhae saab we are going to ISLAMABAD 9 baje ki flight se :)
 
 02 oct 2026
 its our rd day at wah cantt hehe :) 
-we had so much fun here yesterday at mohammadani nani's house, they are so good yaar, mani mamu mashallah 
-i ejnoyed alot :)
+we had so much fun here yesterday at mohammadani nani's house,
+they are so good yaar, mani mamu mashallah 
+i enjoyed alot :)
 
 03 oct 2026
 man i love moona khala's place 
@@ -86,3 +90,17 @@ i need alot of money
 
 28 oct 2026 
 i swimmed today, so much fun and relaxing, also i tried little diving as well
+
+01 November 2026
+My  birth month has started, the month i loved the most, but also a bit sad
+as well as i get to know where i stand in someone's life :)
+My birthday's were never celebrated properly by my family or
+may be you can say it was never let me feel about me, because 29th is haleema's, 
+6th is maryam's and 7th is papa's.
+almost everytime they either celebrated only haleema's as she was the youngest or maryam's as her 
+birthday reside's just a day before papa's. 
+and always mine wasnt felt spacial saying ek hi sath cake cut ke lena
+han spcial meal zaroor banti thi, altough aint a big deal for me but you know khair.
+My inner child :)
+
+
