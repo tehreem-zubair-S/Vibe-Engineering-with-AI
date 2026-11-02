@@ -103,4 +103,7 @@ and always mine wasnt felt spacial saying ek hi sath cake cut ke lena
 han spcial meal zaroor banti thi, altough aint a big deal for me but you know khair.
 My inner child :)
 
+02 nov 2026 
+Haleema gifted me buldak, GUYSSS!!!!
+QAUTTRA CHEESE CHICKEN FLAVOUR
 
