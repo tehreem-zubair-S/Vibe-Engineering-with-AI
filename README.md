@@ -109,3 +109,9 @@ QAUTTRA CHEESE CHICKEN FLAVOUR
 
 05 nov 2026
 Marne wali halat horhi hai bhaesaab
+
+12 nov 2026
+GUYSS its spectrum week going, today was the last day of battleverse hackathon,
+and guess what Rohail gifted me zelbury ka perfume AND a whole stack of jhumkas!!!!!!
+also Faizan gave me his perfume NOOR <3
+so cuteeeee yrrr 
