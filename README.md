@@ -115,3 +115,7 @@ GUYSS its spectrum week going, today was the last day of battleverse hackathon,
 and guess what Rohail gifted me zelbury ka perfume AND a whole stack of jhumkas!!!!!!
 also Faizan gave me his perfume NOOR <3
 so cuteeeee yrrr 
+
+dimagh kharab horha hai mera 
+[CIS AI Agents.docx](https://github.com/user-attachments/files/34916462/CIS.AI.Agents.docx)
+
