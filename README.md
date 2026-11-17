@@ -1,3 +1,5 @@
+[ML Lab Project Proposal.docx](https://github.com/user-attachments/files/34981403/ML.Lab.Project.Proposal.docx)
+[AI_Agents_Quiz_Practice_Sheet.docx](https://github.com/user-attachments/files/34981389/AI_Agents_Quiz_Practice_Sheet.docx)
 This repo is just to keep up with the daily commits 
 
 14 sep 2026
